@@ -1,2 +1,1 @@
-I am an ambitious and a ready one player.Bring it on the sky is full and free.
-Just a view of the world
+https://twitter.com/LeoMenzin/status/1167005632731521024?s=20
